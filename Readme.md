@@ -7,3 +7,5 @@ Saiba mais em [fakefake.com.br](http://fakefake.com.br)
 Gostou do curso? Quer mais? =)
 
 Paypal fakefake
+
+outros cursos em: [FakeFake](http://fakefake.com.br)
